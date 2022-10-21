@@ -12,4 +12,4 @@ Jhon Sebastian Piñeros Barrera
 
 [![image.png](https://i.postimg.cc/c4Xd91rF/image.png)](https://postimg.cc/LngdhpkP)
 
-[![image.png](https://i.postimg.cc/d3ncxnth/image.png)](https://postimg.cc/V0ShSqtw)
+[![image.png](https://i.postimg.cc/rFcF2MKB/image.png)](https://postimg.cc/xqxSKrG5)
